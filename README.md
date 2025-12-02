@@ -19,5 +19,4 @@ of video editing experience.
 
 
 
-okay bye
 ![pfp](https://media.discordapp.net/attachments/1164735929559285831/1423087710951702660/Untitled2052_20251001192152.png?ex=692f74b5&is=692e2335&hm=f8b0291ed6a8a19bf7b2873d1489ce10e9dced4d74d3e1071856389653823d6b&=&format=webp&quality=lossless&width=350&height=350)
