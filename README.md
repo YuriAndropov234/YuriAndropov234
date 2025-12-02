@@ -20,4 +20,4 @@ of video editing experience.
 
 
 okay bye
-![pfp](https://media.discordapp.net/attachments/1164735929559285831/1423087710951702660/Untitled2052_20251001192152.png?ex=69146df5&is=69131c75&hm=44c96303362502535f405c92b85f4e78111650aec47fc861307a50ea4793ea94&=&format=webp&quality=lossless&width=960&height=960)
+![pfp](https://media.discordapp.net/attachments/1164735929559285831/1423087710951702660/Untitled2052_20251001192152.png?ex=692f74b5&is=692e2335&hm=f8b0291ed6a8a19bf7b2873d1489ce10e9dced4d74d3e1071856389653823d6b&=&format=webp&quality=lossless&width=350&height=350)
