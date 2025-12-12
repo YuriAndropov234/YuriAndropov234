@@ -1,4 +1,4 @@
-# Hi I am GCC
+# Hi I am Yuri Andropov
 Welcome
 
 
